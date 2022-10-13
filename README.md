@@ -1,5 +1,4 @@
 # The_ring_of_fire
-# The_ring_of_fire
 I call this campefire song,
 You can sing this song along
 If you know the tune and lyrics,
